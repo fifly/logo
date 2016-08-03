@@ -1,3 +1,3 @@
-# Felix is Flying - FIFLY (lub FIFOL)
+# Felix is Flying - FIFLY
 
 Projekty logo
